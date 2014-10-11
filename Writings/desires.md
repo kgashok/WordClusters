@@ -1,5 +1,5 @@
 # Inner Desires
-
+_What the soul (aka divine spirit) desires_
 ### Peace
 - The ultimate blessing
   - now and forever! 
@@ -19,7 +19,7 @@
 ----
 
 # Human Desires
-
+_What the ape (aka the animal) desires_
 ### Connection 
   - Love 
   - Intimacy
