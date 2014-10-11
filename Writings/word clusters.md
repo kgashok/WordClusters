@@ -9,7 +9,7 @@ _If you want to really communicate to the hugely distracted, heavily diluted, un
 # Discipline (focus, Concentration)
 
     - show me some discipline, motherfucker
-        - show me your shiny Gold Medal
+        - show me your Shiny Gold Medal
 
 # Passion (Curiosity, Commitment)
 
