@@ -1,6 +1,6 @@
 ### Basics
 1.Time management (discipline)
-  - a sense of urgency and timing
+  - a sense of _urgency_ (like Steve Jobs) and timing
 
 2. Goal selection (focus)
   - a sense of excitement and inspiration
