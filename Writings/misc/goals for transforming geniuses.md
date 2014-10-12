@@ -17,7 +17,7 @@ The idea presented here is this: Choose to become intensely focused on *one* (pr
 - __ChangeMaker__ (amass inclusiveness through service, compassion campaigns)
 - __Entrepreneur/ CareerChaser/ Scientist/ HE_Learner__ 
   - (some combination of all of the above)
-     for e.g if you want to go to UT Dallas MS program 
+     for e.g if you want to go to the US for an MS program 
        - 8.0 CGPA is preferable, and technical extra-curricular activities are also important!
 
 ### Choose one, and choose well
