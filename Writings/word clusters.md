@@ -10,17 +10,20 @@ _If you want to really communicate to the hugely distracted, heavily diluted, un
 
     - show me some discipline, motherfucker
         - show me your Shiny Gold Medal
+        - a sign of amassing information - which is good
 
 # Passion (Curiosity, Commitment)
 
     - show me some passion, motherfucker
         - tell me you beat my Code complexity challenge (Karumanchi)
+    - Who are you inspired by? To do great things? Federer? Novak? Nadal?
 # Creativity (flow, fail fast)
 
     - show me your iMINT portfolio, motherfucker
         - tell me your won the Innocentive Challenge or
         - Solved a real problem in a real situation
     - tackling progressively difficult challenges (Flow, Fail Fast)
+      - innovation - out of the box thinking - doing new
     
 # Peace (faith, character)
 _What does your inner soul really [desire][innerDesire]? Have you really tried listening to it? Why not?_
