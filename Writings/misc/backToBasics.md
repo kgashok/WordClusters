@@ -10,7 +10,8 @@
   - a sense of rhythm
 
 ---
-##Vision, consistent effort and Grace.
-
+##Vision, Consistent effort and Grace.
+ - Amma's sayings
+ 
 ---
 #Success is all yours.
