@@ -40,15 +40,12 @@ Choose one, and choose well
   - Have faith in yourself, so you will persevere even in the face of setbacks. Help others, connect with others, bring a lot of passion to whatever you do, and that makes you a leader.
   - Leaders are in demand, at all levels of society. Lead yourself first, and help lead others! 
 
+### Final word: Urgency, Genius and Steve Jobs
+"The difference isn't resources," Gladwell said. "It's attitude."" http://buff.ly/1svwLFL
 
+"Jobs has a sense of urgency," Gladwell said. "He wants to do it now. He speeds to Cupertino and says, drop everything, we're doing this at this very moment." Meanwhile people at Xerox, with their unlimited time and money, think that genius can't be rushed. Jobs is rushed - he's urgent - and that was a part of his genius.
 
-
-
-
-
-
-
-
+"The difference isn't resources," Gladwell said. "It's attitude."
 
 
 
