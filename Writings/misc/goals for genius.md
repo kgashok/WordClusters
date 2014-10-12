@@ -19,7 +19,7 @@ Choose one, and choose well
   - What gets your juices going? Sleep on it! 
   - What do your friends want you to do?
     - but do find like-minded guys to jointly do things
-    - Have fun pursuing meaningful things, not movie watching!
+      - Have fun pursuing meaningful things, not movie watching!
   - What do your parents want you to do?
   
 ### Can I can change my mind, midway?
