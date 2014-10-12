@@ -33,3 +33,31 @@ Choose one, and choose well
     - But choose **one** of the above and be intense about it right away! 
       - It is okay to default to "Gold Medal" before choosing something else
 
+###Related notes from HaikuDeck 
+  - Forward is the only way to go, isn't it? You are the Master of your Destiny, Yoga Vashista said that to Lord Rama. And that's also the case with you. Glory is your birthright, go grab it. Be inspired by the genius within you. Have fun along the way!
+  - Focus is the one word that Bill Gates and Warren Buffet coincided as required for success. Gain information through proper inquiry
+  - Flow requires commitment to Habits (regular rhythm), creativity, innovation and the willingness to fail fast, so you may succeed faster
+  - Have faith in yourself, so you will persevere even in the face of setbacks. Help others, connect with others, bring a lot of passion to whatever you do, and that makes you a leader.
+  - Leaders are in demand, at all levels of society. Lead yourself first, and help lead others! 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
