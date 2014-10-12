@@ -2,6 +2,9 @@
 _Also see [HaikuDeck](https://www.haikudeck.com/app/edit/WWkRpnLqqh#)_
 ### Transforming Genius within through Goal Orientation
 _The most powerful answer to KITE's CMQ_
+
+The idea presented here is this: Choose to become intensely focused on *one* (preferably) or more goals to achieve maximum transformation. 
+
   - IntenseToInsane (**I2I**)
   - Become **`Intense`** about something!
     - intense about information (inquiry), or innovation or inspiration or inclusiveness!
