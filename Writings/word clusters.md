@@ -10,7 +10,7 @@ _If you want to really communicate to the hugely distracted, heavily diluted, un
 
     - show me some discipline, motherfucker
         - show me your Shiny Gold Medal
-        - a sign of amassing information - which is good
+        - a sign of amassing information (like gold is wealth) - which is good
 
 # Passion (Curiosity, Commitment)
 
