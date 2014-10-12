@@ -1,11 +1,13 @@
 ![Image](../img/ideas1.jpg)
+_Also see [HaikuDeck](https://www.haikudeck.com/app/edit/WWkRpnLqqh#)_
 ### Transforming through Goal Orientation
 _The most powerful answer to KITE's CMQ_
+  - IntenseToInsane (**I2I**)
   - Become **`Intense`** about something!
     - intense about information (inquiry), or innovation or inspiration or inclusiveness!
     - Become intensely involved to become insanely great!
-      - learn this while you are, and before you leave KITE
-
+      - learn to be like this while you are at KITE, and definitely before you leave!
+      
 - __Gold medal__ (amass information through inquiry)
 - __Hacker__ (amass innovation through projects) 
 - __Ideator__ (amass inspiration through voice/blogs/communication)
@@ -24,4 +26,5 @@ Choose one, and choose well
   - Preferably, no. 
     - But the earlier you commit, the better the success
     - But choose one of the above and be intense about it right away! 
-  
+
+#### Related:
