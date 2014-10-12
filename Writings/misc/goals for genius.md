@@ -12,7 +12,7 @@ _The most powerful answer to KITE's CMQ_
 - __Hacker__ (amass innovation through projects) 
 - __Ideator__ (amass inspiration through voice/blogs/communication)
 - __ChangeMaker__ (amass inclusiveness through service, compassion campaigns)
-- __Entrepreneur/CareerChaser/Scientist/HE_Learner__ 
+- __Entrepreneur/ CareerChaser/ Scientist/ HE_Learner__ 
   - (some combination of all of the above)
 
 Choose one, and choose well
