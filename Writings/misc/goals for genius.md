@@ -27,4 +27,3 @@ Choose one, and choose well
     - But the earlier you commit, the better the success
     - But choose one of the above and be intense about it right away! 
 
-#### Related:
