@@ -20,7 +20,7 @@ The idea presented here is this: Choose to become intensely focused on *one* (pr
      for e.g if you want to go to UT Dallas MS program 
        - 8.0 CGPA is preferable, and technical extra-curricular activities are also important!
 
-Choose one, and choose well
+### Choose one, and choose well
   - What gets your juices going? Sleep on it! 
   - What do your friends want you to do?
     - but do find like-minded guys to jointly do things
