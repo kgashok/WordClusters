@@ -1,11 +1,14 @@
-Time management (discipline)
+### Basics
+1.Time management (discipline)
   - a sense of urgency and timing
-Goal selection (focus)
+2. Goal selection (focus)
   - a sense of excitement and inspiration
   - Read [this](goals%20for%20transforming%20geniuses.md)
-Execution (habits)
+3. Execution (habits)
   - a sense of rhythm
 
-Vision, consistent effort and Grace.
+---
+##Vision, consistent effort and Grace.
 
-Success is all yours.
+---
+#Success is all yours.
