@@ -14,6 +14,8 @@ _The most powerful answer to KITE's CMQ_
 - __ChangeMaker__ (amass inclusiveness through service, compassion campaigns)
 - __Entrepreneur/ CareerChaser/ Scientist/ HE_Learner__ 
   - (some combination of all of the above)
+     for e.g if you want to go to UT Dallas MS program 
+       - 8.0 CGPA is preferable, and technical extra-curricular activities are also important!
 
 Choose one, and choose well
   - What gets your juices going? Sleep on it! 
@@ -25,5 +27,6 @@ Choose one, and choose well
 ### Can I can change my mind, midway?
   - Preferably, no. 
     - But the earlier you commit, the better the success
-    - But choose one of the above and be intense about it right away! 
+    - But choose **one** of the above and be intense about it right away! 
+      - It is okay to default to "Gold Medal" before choosing something else
 
