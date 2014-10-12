@@ -1,6 +1,10 @@
 ![Image](../img/ideas1.jpg)
 ### Transforming through Goal Orientation
 _The most powerful answer to KITE's CMQ_
+  - Become **`Intense`** about something!
+    - intense about information (inquiry), or innovation or inspiration or inclusiveness!
+    - Become intensely involved to become insanely great!
+      - learn this while you are, and before you leave KITE
 
 - __Gold medal__ (amass information through inquiry)
 - __Hacker__ (amass innovation through projects) 
