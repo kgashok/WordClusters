@@ -1,6 +1,6 @@
 ![Image](../img/ideas1.jpg)
 _Also see [HaikuDeck](https://www.haikudeck.com/app/edit/WWkRpnLqqh#)_
-### Transforming Genius within through Goal Orientation
+### Transforming the Genius within through Goal Orientation
 _The most powerful answer to KITE's CMQ_
 
 The idea presented here is this: Choose to become intensely focused on *one* (preferably) or more goals to achieve maximum transformation. 
