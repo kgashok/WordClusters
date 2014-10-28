@@ -1,6 +1,7 @@
 Business as usual has become increasingly unsustainable.
 * thanks to the web
 * thanks to Google effect of talent concentrating in one place
+
 ________________________
 
 For us to strive thrive and survive
@@ -20,7 +21,9 @@ Workship
 Seiyyum tholilae Deivam
 * integrity, improvement and innovation, inspiration
 * reject mediocrity absolutely
+* 
 ________________________
+
 Improvement, the technology-enabled kind
 * ambitious - 37.8% or 37.8? Leadership has to be the role model here
 ________________________
