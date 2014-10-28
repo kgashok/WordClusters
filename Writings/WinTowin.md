@@ -1,17 +1,15 @@
 
 
----
+# WIN to win 
 
-WIN to win 
+What is your WIN Quotient? My performance feedforward question.
+_15:53, 28/10/14 15:53 @ KG Hospital as Dr GB is recovering_
 
-What is your WIN Quotient? My performance appraisal question.
+**Workship**: "Every work that we do... every thought that we think, leaves such an impression on the mind-stuff..." - Swami Vivekananda
 
-15:53, 28/10/14 15:53 @ KG Hospital as Dr GB is recovering 
+_A huge responsibility for every leader who is accountable for establishing the right culture/behavior/values in any work environment, thriving or otherwise._
 
-Workship: "Every work that we do... every thought that we think, leaves such an impression on the mind-stuff..."
-
-A huge responsibility for every leader who is accountable for establishing the right culture/behavior/values in any work environment, thriving or otherwise. 
----
+##The Need of the Hour: More Peformance
 
 The need of the hour is Performance. Performance in the face of increasing competition from all sides. And believe me, the competition is extremely fierce as well. Performance can be had only if every one puts in their share of hard work. Let's not beat around the bush. This is the cold hard fact. Find peace in performing (for yourself first, your team and your company). Not the hard work that emanates not from more scrutiny, or micro-management but from discretionary output. What is discretionary output? The "extra" that employees contribute out of their own volition, will or wish. 
 
